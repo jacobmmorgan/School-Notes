@@ -1,1 +1,2 @@
-Chico State / Jacob M Morgan
+# School-Notes
+Chico State
