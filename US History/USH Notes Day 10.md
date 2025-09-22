@@ -19,4 +19,5 @@ A nativist is someone who believes that the U.S. should be limited to "native am
 - They were functionally Invisible
 
 ##### Oppression of Chinese Immigrants
-
+- Quickly changed as more people flood California
+- 
