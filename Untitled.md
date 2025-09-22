@@ -24,3 +24,8 @@ He must be an intelligent man
 
 
 The star and crscent shall not be worn by every man but only by him who is wrothy to wear it He must be a gentleman a man of honor and courage a man of zeal but humble he must be an intelligent man
+
+The star and crescent shall not be worn by every man
+But only by him who is worthy to wear it
+
+He must be a gentleman a man of honor and courage a man of zeal yet humble
