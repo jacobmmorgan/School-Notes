@@ -46,4 +46,8 @@ He must be a gentleman a man of honor and courage a man of zeal yet humble he mu
 OIne who tempers action with wisdom
 onbe who tampers action with wisdom one who tampers action with wisdm one who tampers action with wisdom one who tampers action with wisdom
 
-The star and crescent shall not be worn by every man but only by him who is
+The star and crescent shall not be worn by every man but only by him who is worthy to wear it He must be a gentlerman a man of honor and courage a man of zeal yet humbleHee must an intelligent man a an of truth One who tempers action with wisdom
+
+
+
+The star and crescent shall nt be wor
