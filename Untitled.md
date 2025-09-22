@@ -43,4 +43,7 @@ But only by hm who is worthy to wear it
 He must be a gentleman a man of honor and courage a man of zeal yet humble he must be an intelligent man a man of truth
 
 
-OIne who tem
+OIne who tempers action with wisdom
+onbe who tampers action with wisdom one who tampers action with wisdm one who tampers action with wisdom one who tampers action with wisdom
+
+The star and crescent shall not be worn by every man but only by him who is
