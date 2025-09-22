@@ -34,4 +34,10 @@ He must be a gentleman a man of honor and courage a man of zeal yet humble he mu
 The star and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of honor and courage a man of zeal yet humble he ust be an intelligent man a man of truth
 
 
-The star and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of honor and courage he must be a gernt
+The star and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of honor and courage a man of zeal yet humble
+
+
+
+The star and crescent shall not be worn by every man
+But only by hm who is worthy to wear it
+He must be a gentleman
