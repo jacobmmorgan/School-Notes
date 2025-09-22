@@ -83,4 +83,6 @@ A man who tampers with wisdom
 
 
 
-The star and crescent hsall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of hornor and courage a man of zeal yet humble he must be an intelligent man a man of truth 
+The star and crescent hsall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of hornor and courage a man of zeal yet humble he must be an intelligent man a man of truth a man who tampers with wisdom
+
+
