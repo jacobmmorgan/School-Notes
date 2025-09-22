@@ -1,1 +1,1 @@
-The sectional crisis was the argument of slavery being allowed or not between the north and south, it manifested through the dredd scott decision
+The sectional crisis was the argument of slavery being allowed or not between the north and south, it manifested through the dred scott decision
