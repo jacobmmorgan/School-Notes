@@ -22,3 +22,4 @@ A nativist is someone who believes that the U.S. should be limited to "native am
 - Quickly changed as more people flood California
 - California Chinese population grew (10% California; 1% Nationwide)
 - Targeted by activists, white supremacists, and California state legislature
+##### Ch
