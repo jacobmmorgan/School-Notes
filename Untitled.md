@@ -67,3 +67,5 @@ The star and crescent shall not be worn by every man but only by him who is wort
 
 
 The star and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gnetleman a man of honor and courage man of zeal yet humble he must be an intelligent man a man of truth
+
+The star and crescent shall not be worn by every man but only by him who is w
