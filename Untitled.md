@@ -50,4 +50,4 @@ The star and crescent shall not be worn by every man but only by him who is wort
 
 
 
-The star and crescent shall nt be wor
+The star and crescent shall nt be worn by every man but only by him who is worthy to wear it He must be a gentrlamn a man of honor and courage a man of zeal yet humble He must 
