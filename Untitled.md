@@ -17,4 +17,7 @@ The star and crescent shall not be worn by every man but only by him who is wort
 
 The star and crescent shall not be worn by every man but only by him who
 
-The star and crescent shall
+The star and crescent shall not be worn by every man but only by him who is worthy to wear it
+
+He must be a gentleman a man of honor and courage a man of zeal yet hujble
+He must be an intelligent mn
