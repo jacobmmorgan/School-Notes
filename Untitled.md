@@ -8,4 +8,7 @@ The star and crescent shall not be worn by every man but only by him who is wort
 
 He must be a gentleman
 
-He must be a gentleman a man of honor and courage
+He must be a gentleman a man of honor and courage a man 
+
+
+The star and c
