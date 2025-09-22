@@ -15,4 +15,4 @@
 A nativist is someone who believes that the U.S. should be limited to "native americans," by which they mean white Anglo Saxon Protestants
 
 ##### Chinese Immigration to U.S Before 1840
-
+- By 1848 there were only 325 people of Chinese ancestry who had become U.S. Citizens
