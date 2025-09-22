@@ -9,4 +9,4 @@
 - On January 24th, 1848 James Marshall found gold flakes in the American River.
 - He told John Sutter and they tried to keep it a secret.
 - By March word of the discovery reached SF and word spread by Sam Brannon
-- The 
+- One consequence crated was the creation of anti-chinese racism in the US
