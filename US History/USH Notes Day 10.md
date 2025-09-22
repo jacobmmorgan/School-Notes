@@ -11,4 +11,4 @@
 - By March word of the discovery reached SF and word spread by Sam Brannon
 - One consequence crated was the creation of anti-chinese racism in the US
 
-Nativism: A nativist is someone who believes that the U.S. should be limited to ""
+Nativism: A nativist is someone who believes that the U.S. should be limited to "native americans," by which they mean white Anglo Saxon Protestants
