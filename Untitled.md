@@ -107,4 +107,4 @@ The star and crescent shall not be worn by every man but only by him who is wort
 The tsr and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of honor and courage a man of zeal yet humble he must be an intelligent man a man of truth he must tamper action with wisdom and above all walk in the light of god
 
 
-The star and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of honor a courage a man of zeal yet humble he must be an intelligent man a man 
+The star and crescent shall not be worn by every man but only by him who is worthy to wear it he must be a gentleman a man of honor a courage a man of zeal yet humble he must be an intelligent man a man of truth he must tamper action with wisdom and above all walk in the light of god
