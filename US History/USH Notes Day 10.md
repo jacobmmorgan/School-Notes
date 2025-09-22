@@ -5,3 +5,5 @@
 - US Settling was a form of emigration
 - American Indians and Mexico did not appreciate westward expansion
 
+#### The Gold Rush
+- On January 24th, 1848 James Marshall found gold flakes i
