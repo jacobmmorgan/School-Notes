@@ -17,3 +17,6 @@ A nativist is someone who believes that the U.S. should be limited to "native am
 ##### Chinese Immigration to U.S Before 1840
 - By 1848 there were only 325 people of Chinese ancestry who had become U.S. Citizens
 - They were functionally Invisible
+
+##### Oppression of Chinese Immigrants
+
