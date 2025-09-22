@@ -10,3 +10,5 @@
 - He told John Sutter and they tried to keep it a secret.
 - By March word of the discovery reached SF and word spread by Sam Brannon
 - One consequence crated was the creation of anti-chinese racism in the US
+
+Nativism: A nativist is someone who believes that the U.S. should be limited to ""
