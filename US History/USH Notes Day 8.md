@@ -1,0 +1,5 @@
+- Work was done by <u>artisans</u> not laborers
+- Very few people went to work; worked at home
+- Before 1790, no mass production
+- Robert Fulton invented the steamboat
+- Samuel Morse filed for a patent of the electrical telegraph
