@@ -23,4 +23,5 @@ A nativist is someone who believes that the U.S. should be limited to "native am
 - California Chinese population grew (10% California; 1% Nationwide)
 - Targeted by activists, white supremacists, and California state legislature
 ##### Chinese Massacre of 1871
-- 500 hite males i attack china town
+- 500 white males of Los Angeles attack china town and killed 20 Chinese men. Eight were convicted but all sentences were overturned
+- 
