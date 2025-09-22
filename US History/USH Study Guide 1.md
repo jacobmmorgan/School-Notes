@@ -1,0 +1,1 @@
+The sectional crisis was the argument of slavery being allowe
