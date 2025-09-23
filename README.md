@@ -1,2 +1,2 @@
 # School-Notes
-Git push from ObChico State / Jacob M Morgan
+Auto Git push from my Obsidian | Chico State / Jacob M Morgan
