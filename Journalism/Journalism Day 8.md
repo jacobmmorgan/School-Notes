@@ -6,4 +6,6 @@ Went to SFSU
 Bachelors in history
 Minor in journalism
 Page design at the record bee, had to draw
-Editor 
+Editor of high school paper
+Did sports
+
