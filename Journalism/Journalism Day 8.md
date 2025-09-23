@@ -5,3 +5,4 @@ Graduated high school in 79
 Went to SFSU
 Bachelors in history
 Minor in journalism
+Page design at the record bee, had to draw
