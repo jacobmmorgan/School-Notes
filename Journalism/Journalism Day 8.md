@@ -3,4 +3,5 @@ Born & raised in Healdsburg, Sonoma county
 Was a stringer in high school for the local paper
 Graduated high school in 79
 Went to SFSU
-Minored in o
+Bachelors in history
+Minor in journalism
