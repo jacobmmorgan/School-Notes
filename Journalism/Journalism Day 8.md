@@ -8,4 +8,5 @@ Minor in journalism
 Page design at the record bee, had to draw
 Editor of high school paper
 Did sports
+Wanted to do baseball but wasn't able to hit a curveball
 
