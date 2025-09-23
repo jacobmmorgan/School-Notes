@@ -1,2 +1,2 @@
 # School-Notes
-Chico State / Jacob M Morgan
+Git push from ObChico State / Jacob M Morgan
