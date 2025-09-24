@@ -16,4 +16,4 @@ Missouri Compromise 1820
 
 #### Kansas-Nebraska act 1854
 - Pro slavery and anti slavery both sent men to kansas, they formed each of their own govs and voted in their favor
-- Anti slavery people 
+- Anti slavery people went around killing pro slavery people.
