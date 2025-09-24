@@ -5,3 +5,4 @@
 - Cotton named "king cotton"
 - Cotton made demand for slaves increase
 - More motivation to defend slavery due to profits
+- 
