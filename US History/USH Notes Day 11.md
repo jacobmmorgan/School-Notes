@@ -4,3 +4,4 @@
 - Eli Whitney's cotton gin prevented slavery from dying out
 - Cotton named "king cotton"
 - Cotton made demand for slaves increase
+- 
