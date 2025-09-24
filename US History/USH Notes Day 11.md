@@ -12,3 +12,6 @@
 
 #### New states political crises
 Missouri Compromise 1820
+- Missouri enters as a slave state
+
+#### ;
