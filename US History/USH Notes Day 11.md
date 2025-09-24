@@ -7,4 +7,5 @@
 - More motivation to defend slavery due to profits
 
 #### Sectionalism
-The increasing divide between the n
+- The increasing divide between the North and South was called <u>Sectionalism</u>
+- As it got worse it became the S
