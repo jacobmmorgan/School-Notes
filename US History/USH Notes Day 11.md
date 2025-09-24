@@ -11,3 +11,4 @@
 - As it got worse it became the <u>Sectional Crisis</u>
 
 #### New states political crises
+Missouri Compromise 1820
