@@ -9,4 +9,5 @@
 #### Sectionalism
 - The increasing divide between the North and South was called <u>Sectionalism</u>
 - As it got worse it became the <u>Sectional Crisis</u>
-- 
+
+#### New states political crises
