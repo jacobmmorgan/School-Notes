@@ -14,4 +14,5 @@
 Missouri Compromise 1820
 - Missouri enters as a slave state
 
-#### 
+#### Kansas-Nebraska act 1854
+- Pro slavery and anti-
