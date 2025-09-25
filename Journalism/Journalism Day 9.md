@@ -12,7 +12,7 @@
 - **Fixed**: The Chico Police are responding to an active crime scene in city park. One person is confirmed dead from a gunshot wound. The suspected shooter is a white man in his mid-30s with a history of drug use and confrontation with law enforcement. Stay clear of the area. This is an active investigation with multiple possible victims
 
 - **Original**: The pt shows indications an inflammation of the transparent membrane, diagnosis conjunctivitis
-- Fixed: The patient has pink eye
+- **Fixed**: The patient has pink eye
 #### Leads
 **Summary Leads**
 - Most traditional
