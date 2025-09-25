@@ -20,4 +20,5 @@
 - Quick summary
 - Usually one sentence
 - Summarize the most newsworthy fact within 10 words.
-When Lead
+**When Lead**
+- 
