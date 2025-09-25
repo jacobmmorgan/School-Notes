@@ -15,4 +15,8 @@
 - Fixed: The patient has pink eye
 
 #### Leads
+Summary Leads
+- Most traditional
+- To the point and factual
+- Qucik
 
