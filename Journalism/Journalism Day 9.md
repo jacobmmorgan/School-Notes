@@ -20,5 +20,4 @@
 - To the point and factual
 - Quick summary
 - Usually one sentence
-- 
 
