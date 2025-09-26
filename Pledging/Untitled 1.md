@@ -22,4 +22,14 @@ aklpha beta gamma delta epsilon zeta eta theta iota kappa lambda mu nu xi omicro
 
 alpha beta gamma delta epsilon zeta eta theta iota kappa lambda mu nu xi omicron pi rho sigma tau upsilon phi chi psi omega
 
-alpha beta gamma delta epsiol zeta eta theta iota kappa lambda mu nu xi omicron pi rho sigma tau upsilon 
+alpha beta gamma delta epsiol zeta eta theta iota kappa lambda mu nu xi omicron pi rho sigma tau upsilon phi chi psi oemga
+
+
+
+
+
+
+
+
+
+alpha beta gamma delta epsion zeta eta theta iota kappa lambdea mu nu xi omicron 
