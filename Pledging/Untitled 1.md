@@ -14,25 +14,21 @@ alpha beta gamma delta episol zeta eta theta iota kappa lambda mu nu xi omicron 
 
 alpha beta gamma delta epsilon zeta eta theta iota kappa lambda mu nu xi omicron pi rho sigma tau upsilon phi chi psi omega
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 alpha beta gamma delta epsilon zeta eta theta iota kappa lambda mu nu xi omicron pi rho sigma tau upsilon phi chi psi omega
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Alpha beta gamma delta epsiol zeta eta theta iota kappa lambda mu nu xi omicron 
