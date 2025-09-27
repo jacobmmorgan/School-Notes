@@ -1,1 +1,1 @@
-Brian Sumpter, who is sports editor and journalist shared his story from living in a small town called Healdsburg during 
+Brian Sumpter, who is sports editor and journalist shared his story from living in a small town called Healdsburg to working 40 years at the Record-Bee
