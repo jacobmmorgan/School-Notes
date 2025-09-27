@@ -88,4 +88,4 @@ Alpha beta gamma delta epsiol zeta eta theta iota kappa lambda mu nu xi omiron p
 
 
 
-Alpha beta g
+Alpha beta gamma delta epsilon zeta eta theta iota kappa lambeda mu nu xi omicron pi rho 
