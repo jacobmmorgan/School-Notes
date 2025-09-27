@@ -1,1 +1,1 @@
-Brian Sumpter, who is sports editor and journalist shared his story
+Brian Sumpter, who is sports editor and journalist shared his story from living in a small town called
