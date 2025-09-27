@@ -39,4 +39,27 @@ alpha beta gamma delta epsion zeta eta theta iota kappa lambdea mu nu xi omicron
 
 
 
-alpha beta gaam delta epsiol zeta eta theta 
+alpha beta gaam delta epsiol zeta eta theta iota kappa lambda mu nu xi omicron pi rho sigma tau upsilon phi chi psi omega
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
