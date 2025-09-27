@@ -1,0 +1,1 @@
+Brian Sumpter, who is sports editor and journalist shared his story
