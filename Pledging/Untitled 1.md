@@ -88,4 +88,32 @@ Alpha beta gamma delta epsiol zeta eta theta iota kappa lambda mu nu xi omiron p
 
 
 
-Alpha beta gamma delta epsilon zeta eta theta iota kappa lambeda mu nu xi omicron pi rho 
+Alpha beta gamma delta epsilon zeta eta theta iota kappa lambeda mu nu xi omicron pi rho sigma tau upsiol phi chi psi omega
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Alpha beta gamma delta epsilon zeta eta theta iota kappa lambda mu nu 
