@@ -3,4 +3,7 @@ alpha beta gamma delta epsilon zeta eta theta iota kappa lmambda mu nu xi omicro
 
 
 
-alpha beta gamma delta epsilon zeta eta theta iota kappa lam
+alpha beta gamma delta epsilon zeta eta theta iota kappa lambda u nu xi omicron pi rho sigma tau upsilon phi chi psi omega
+
+
+
