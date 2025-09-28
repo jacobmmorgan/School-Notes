@@ -1,1 +1,1 @@
-alpha beta gamma delta epsilon zeta eta theta iota kappa lmambda mu nu xi omicron pi rho 
+alpha beta gamma delta epsilon zeta eta theta iota kappa lmambda mu nu xi omicron pi rho sigma tau upsilon phi chi psi omega
