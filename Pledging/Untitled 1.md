@@ -1,1 +1,1 @@
-Alpha bet agamm delta epsilon zeta eta theta 
+Alpha beta gamma delta epsilon zeta eta theta iota k
