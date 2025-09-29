@@ -6,4 +6,4 @@ The paradox of US Slavery is that the US was based on freedom and natural rights
 
 Mercantilism is the european originated idea that wealth = power, its three main goals are to accumulate wealth, maintain trade, and to strengthen power. Colonies supplied materials to the home country and attributed to its total wealth
 
-The three major influences on the development of american cuisine were european, indigenous, and african influence. Indigenou food provoided essentials for survival, european established livestock, dairy, and african influence brpought cooking techniques like deepfrying and seasoning with spices
+The three major influences on the development of american cuisine were european, indigenous, and african influence. Indigenous food provoided essentials for survival, european established livestock, dairy, and african influence brpought cooking techniques like deepfrying and seasoning with spices
