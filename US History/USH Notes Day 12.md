@@ -1,1 +1,2 @@
-#### Republican party originally radical, not conservative.
+Republican party originally radical, not conservative.
+THe Civil RIghts A
