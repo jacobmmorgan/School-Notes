@@ -12,4 +12,6 @@ may 6th 2007 masonic lodge of chico\
 may 6th 2007 masonic lodge of chico
 my 6th 2007 masonic lodge of chico
 may 6th 2007 masonic lodge of chico
-may 6th 2007 masonic lodge of 
+may 6th 2007 masonic lodge of chico
+may 6th 2007 masonic lodge of chico
+may 6th 2007 masonic lodge of chico
