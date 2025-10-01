@@ -1,3 +1,5 @@
 - Republican party originally radical, not conservative.
 - The Civil Rights Acts of 1866 Strengthened the 13th amendment defining citizenship to include all native born.
+- Reconstruction ended in 1877
+- Reconstruction didn't solve white supremacy.
 - 
