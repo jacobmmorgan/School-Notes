@@ -1,2 +1,3 @@
-Republican party originally radical, not conservative.
-THe Civil RIghts Acts of 1866 Strengthrned the 13th amendment defining citizenship to a
+- Republican party originally radical, not conservative.
+- The Civil Rights Acts of 1866 Strengthened the 13th amendment defining citizenship to include all native born.
+- 
