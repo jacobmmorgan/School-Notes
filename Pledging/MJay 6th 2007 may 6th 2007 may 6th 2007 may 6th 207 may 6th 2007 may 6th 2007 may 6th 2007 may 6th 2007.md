@@ -20,4 +20,4 @@ may 6th 2007 masonic lodge of chico
 fellowship bob floyd
 leadership josh juanitas
 scholarship jake acosta
-service 
+service graham plantz justin palumbo
