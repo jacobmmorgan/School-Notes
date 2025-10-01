@@ -41,3 +41,4 @@ fellowship bob floyd
 leadership josh juanitas
 scholarship jake acosta
 service graham plantz justin palumbo
+manm of year josh juanitas
