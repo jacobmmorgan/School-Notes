@@ -38,4 +38,6 @@ service graham plantz justin palumbo
 
 
 fellowship bob floyd
-leaders
+leadership josh juanitas
+scholarship jake acosta
+service graham plantz and justin 
