@@ -3,3 +3,5 @@
 - When quoting or paraphrasing a person use "said" or "stated" for attribution, use full name and title.
 
 - When quoting an article or website use the introduction "according to"
+
+- 
