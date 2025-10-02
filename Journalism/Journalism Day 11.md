@@ -1,1 +1,3 @@
 News sources can include interviews, magazine articles, news articles, credible website information, and even social media crowdsourcing
+
+When quoting or paragraphasing a person use "said" or "stated" for attribution
