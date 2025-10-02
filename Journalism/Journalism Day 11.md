@@ -1,0 +1,1 @@
+News sources can include interviews, magazine articles, news articles, credibler website infornation,
