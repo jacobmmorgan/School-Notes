@@ -1,4 +1,4 @@
 - what would you like to see change in the future
 - challenges you face with the pay discrepancy in the wnba
 - Were there specific professors, mentors, or classes that had a lasting impact on you?
-- 
+- W
