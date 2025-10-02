@@ -1,0 +1,2 @@
+- what would you like to see in the future
+- challenges you face with the pay discrepancy in the wnba
