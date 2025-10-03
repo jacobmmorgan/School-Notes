@@ -6,3 +6,4 @@
 
 ### Homestead Act of 1892
 - Made it far easier for poor individuals and families to acquire land in west.
+
