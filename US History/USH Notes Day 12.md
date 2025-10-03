@@ -3,4 +3,3 @@
 - Reconstruction ended in 1877
 - Reconstruction didn't solve white supremacy.
 - Public education arrived via the Freedman's Bureau
-- 
