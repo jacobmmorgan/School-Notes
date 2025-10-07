@@ -25,4 +25,12 @@ strada san donato strada stefano strada sargozzi
 
 
 
-strada san donato strada ste
+strada san donato strada stefano strada sargozzi
+
+
+
+
+torre delgi asinelli
+
+
+torre garisendi 
