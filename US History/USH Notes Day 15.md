@@ -1,3 +1,3 @@
 - World War I brought inflation to the U.S.
 - Consumer good industries grew rapidly
-- Great depression resulted in economic st
+- Great depression resulted in economic stagnation
