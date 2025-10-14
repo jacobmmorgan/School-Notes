@@ -1,1 +1,1 @@
-Observation in journalism is a vital skill that invoves attentiv
+Observation in journalism is a vital skill that involves watching and recording detals about events, people, and environments to understand better
