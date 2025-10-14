@@ -17,4 +17,4 @@
 - Be ethical and transparent
 
 ## Alliteration
-- The occurance of the same letter or soynd at the beginning of adjacent or closely connected words can give writing its owj rhythm and flow
+- The occurrence of the same letter or soynd at the beginning of adjacent or closely connected words can give writing its owj rhythm and flow
