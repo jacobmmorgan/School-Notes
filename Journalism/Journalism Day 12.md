@@ -11,3 +11,4 @@
 ## Ethics
 - Truth accuracy and objectivity are cornerstones of journalism ethics
 - Newsrooms have specific policies
+"a newspaper should have no friends"
