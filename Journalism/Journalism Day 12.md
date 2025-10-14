@@ -14,4 +14,4 @@
 "a newspaper should have no friends"
 - Journalists cannot accept favors, money or gifts from sources
 - A reporter may be given a press pass to attend an event
-- Be ethical and transparen
+- Be ethical and transparent
