@@ -19,4 +19,6 @@
 ## Alliteration
 - The occurrence of the same letter or sound at the beginning of adjacent or closely connected words can give writing its own rhythm and flow
 
-##
+## Glocalization
+- Take a large/global subject or issue and localize it
+- The news value proximity makes the
