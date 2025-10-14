@@ -12,4 +12,5 @@
 - Truth accuracy and objectivity are cornerstones of journalism ethics
 - Newsrooms have specific policies
 "a newspaper should have no friends"
-- journalisms cannot accept favors
+- journalisms cannot accept favors, money or gifts from sources
+- a reporter may be given a press pass to attend an event
