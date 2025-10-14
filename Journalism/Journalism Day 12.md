@@ -21,4 +21,4 @@
 
 ## Glocalization
 - Take a large/global subject or issue and localize it
-- The news value proximity makes the
+- The news proximity makes the news more valuable
