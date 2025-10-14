@@ -7,3 +7,5 @@
 ##### Watch for trends
 - Listen to common language used and repetition
 - Look for common occurrences
+
+## Ethics
