@@ -1,0 +1,1 @@
+Observation in journalism is a vital skill that invoves attentiv
