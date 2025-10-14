@@ -15,3 +15,6 @@
 - Journalists cannot accept favors, money or gifts from sources
 - A reporter may be given a press pass to attend an event
 - Be ethical and transparent
+
+## Alliteration
+- The occurence of the same ktete
