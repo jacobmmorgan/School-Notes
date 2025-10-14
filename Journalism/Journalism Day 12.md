@@ -9,3 +9,5 @@
 - Look for common occurrences
 
 ## Ethics
+- Truth accuracy and objectivity are cornerstones of journalism ethics
+- 
