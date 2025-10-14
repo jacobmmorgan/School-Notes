@@ -5,3 +5,6 @@
 - Use all five senses
 - Watch body language
 - Be aware of surroundings
+###### Watch for trends
+- Listen to common language used and repetition
+- Look for common
