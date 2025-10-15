@@ -14,4 +14,4 @@ why not my brothers since we of today live and cherish the principles of the kap
 
 
 
-why not my brothers since we of today liver and cherish the princip
+why not my brothers since we of today liver and cherish the principles of the kappa sigma fraternity throw such a halo around those principles
