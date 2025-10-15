@@ -1,1 +1,5 @@
-why not my brothers since we of today live and cherish the principles of the kappa sigma fraternity do we throw such a halo
+why not my brothers since we of today live and cherish the principles of the kappa sigma fraternity throw such a halo around those principles\
+
+
+
+why not my brothers since we of t
