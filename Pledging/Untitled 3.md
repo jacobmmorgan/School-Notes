@@ -6,4 +6,6 @@ why not my brothers since we of today live and cherish the principles of the kap
 
 
 
-why not my brothers since we of today live and cherish the principles of the kappa si
+why not my brothers since we of today live and cherish the principles of the kappa sgma fraternity throw such a halo around those principles that
+
+
