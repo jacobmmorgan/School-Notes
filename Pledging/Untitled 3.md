@@ -1,1 +1,1 @@
-wh ynot my brothers since we of today live 
+wh ynot my brothers since we of today live and cherish the principle sof the kappa sigma fratnetiy throw such a halo around those principles that they may be passed down as a precious heirloom to ages yet unborn? why not put our apples of gold into pictures of silver may
