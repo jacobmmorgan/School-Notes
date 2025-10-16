@@ -1,1 +1,1 @@
-why not my brothers sine we of today live and cherish the principles of the kappa sigma fraternity throw such a halo around those principles that they may be passed down as a precious heirloom to ages yet unborn why not put our apples of gold into picutres of silver? may we not rest contentedly until the star and crescent is the pride of every college and university in the land
+why not my brothjers since we of today 
