@@ -1,1 +1,1 @@
-why not my brothers sine 
+why not my brothers sine we of today live and cherish the principles of the kappa sigma fraternity throw such a halo around those principles that they may be passed down as a precious heirloo
