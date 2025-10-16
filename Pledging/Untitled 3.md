@@ -1,1 +1,1 @@
-why not my brothers since we of today l
+why not my brothers since we of today live and cherish the principles of the kappa sigma fratenity throw such a halo around those principles that they may be passed as precious heirlooms to ages yet unborn? why not put our apples of gold in pictures 
