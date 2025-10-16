@@ -2,4 +2,4 @@ why not my brothers since we of today live and cherish the principles of the kap
 
 
 
-why niot my brothers since we of today live and cherish the principles of the kappa sigma fraternit
+why niot my brothers since we of today live and cherish the principles of the kappa sigma fraternit throw such a halo around those princuples tat they may be handed down as precious heirlooms to ages yet unborn? why not put our apples of gold into pictures of silver
