@@ -1,1 +1,1 @@
-why not myb rothers since we of today live and cherish the principles of the kappa sigma fratenirty throw such a halo around those principles
+why not my brothers since we of today throw such a halo around those princip
