@@ -1,21 +1,21 @@
 ## Opinion Piece
-DO INCLUDE  
-• First-person writing  
-• Facts  
-• Quotes  
-• Write with all five senses  
-• Metaphorical writing  
-DO NOT INCLUDE  
-• Name-calling  
-• Hate speech  
-• Unsubstantiated content  
-• Inaccurate information  
+DO INCLUDE
+• First-person writing
+• Facts
+• Quotes
+• Write with all five senses
+• Metaphorical writing
+DO NOT INCLUDE
+• Name-calling
+• Hate speech
+• Unsubstantiated content
+• Inaccurate information
 • Unnecessary words
 
 # Active voice vs Passive voice
 ###### ACTIVE VOICE
-- Active voice writing is a style where  
-the subject of a sentence performs  
+- Active voice writing is a style where
+the subject of a sentence performs
 the action, making the writing clearer,  
 more direct, and often more concise.  
 - Example: The dog chased the ball.  
