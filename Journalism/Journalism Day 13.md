@@ -14,15 +14,11 @@ DO NOT INCLUDE
 
 # Active voice vs Passive voice
 ###### ACTIVE VOICE
-- Active voice writing is a style where
-the subject of a sentence performs
-the action, making the writing clearer,  
-more direct, and often more concise.  
-- Example: The dog chased the ball.  
-###### PASSIVE VOICE  
-- Passive voice writing is when the  
-subject of a sentence receives an  
-action, rather than performing it, often  
+- Active voice writing is a style where the subject of a sentence performs
+the action, making the writing clearer, more direct, and often more concise.
+- Example: The dog chased the ball.
+###### PASSIVE VOICE
+- Passive voice writing is when the subject of a sentence receives an action, rather than performing it, often  
 using a form of “to be.”  
 - Example: The ball was chased by the  
 dog.
