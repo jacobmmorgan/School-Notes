@@ -1,1 +1,1 @@
-why not my brothers since we of today live and cherish those principles of
+why not my brothers since we of today live and cherish the principles of the kappa sigma fraternity throw such a halo around those principles that may be handed down to ages yet unborn
