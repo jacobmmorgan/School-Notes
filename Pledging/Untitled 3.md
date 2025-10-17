@@ -1,1 +1,1 @@
-why not my b
+why not my brithers since we live ane cherish the principles of the kappa sigma fraternity throw such a halo around those princuiples that they may be handed down 
