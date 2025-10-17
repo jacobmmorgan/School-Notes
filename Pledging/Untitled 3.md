@@ -1,1 +1,1 @@
-why not my brithers since we live ane cherish the principles of the kappa sigma fraternity throw such a halo around those princuiples that they may be handed down as a precious heirloom to ages yet unborn? why not put our apples of gold in pictures of silver. may we not rest contentedly until the star and crescent is the pride of every college and university in the land!
+why not my brothers since we live ane cherish the principles of the kapap sigma fratenirty throw such a halo 
