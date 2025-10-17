@@ -1,1 +1,1 @@
-why not my brothers since we live ane cherish the principles of the kapap sigma fratenirty throw such a halo 
+why not my brothers since we live ane cherish the principles of the kapap sigma fratenirty throw such a halo around those principles that they may be handed down 
