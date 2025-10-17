@@ -1,1 +1,1 @@
-why not my brothers since we of today live and cherish the principles of the kappa sigma fraternity throw such a halow a
+why not my brothers since we of today live and cherish those principles of
