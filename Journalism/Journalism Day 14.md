@@ -6,4 +6,6 @@
 
 ##### Process
 - develops a strategy for advertising that includes poster creation and distribution, collaborates with media outlets
-##### Creating
+##### Creating a buzz
+- She anticipates all the need of the attendees after each event she plans for the next by analyzing what can be improved
+##### Developed sourced and trust
