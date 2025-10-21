@@ -11,4 +11,4 @@
 ##### Developed sourced and trust
 - She knows the community, they know her
 - She is actively involved in the wellbeing of the community
-- Reliaboe, proactive, ca
+- Reliable, proactive, answers the phone quickly
