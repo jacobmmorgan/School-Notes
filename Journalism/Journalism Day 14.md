@@ -9,3 +9,6 @@
 ##### Creating a buzz
 - She anticipates all the need of the attendees after each event she plans for the next by analyzing what can be improved
 ##### Developed sourced and trust
+- She knows the community, they know her
+- She is actively involved in the wellbeing of the community
+- Reliaboe, proactive, ca
