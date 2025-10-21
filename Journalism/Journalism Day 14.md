@@ -5,4 +5,5 @@
 - Participation in creating and attending events to reach a broad amount of community members
 
 ##### Process
-- develops a strategy for adv
+- develops a strategy for advertising that includes poster creation and distribution, collaborates with media outlets
+##### Creating
