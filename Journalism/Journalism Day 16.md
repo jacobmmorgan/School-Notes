@@ -18,4 +18,29 @@ stories and programs — celebrating the people,
 places, history, and quirk of the Bay Area on  
 “Evening Magazine” and “Eye on the Bay.”  
 • He contributed and collaborated on content for  
-“CBS Sunday Morning.”
+“CBS Sunday Morning.” HIS LIFELONG PASSION FOR HYPER-LOCAL  
+AND CHANGE-MAKING STORYTELLING  
+OFTEN PAVED THE WAY FOR HIM TO BECOME  
+PERSONALLY INVOLVED IN ELEVATING  
+REGIONAL AND  
+GLOBAL ISSUES. After leaving CBS, he wrote,  
+directed, and produced  
+“Minutes to Die,” a global  
+documentary on the crisis of  
+snakebite deaths in the most  
+impoverished parts of the  
+world.  
+The film led to the World Health  
+Organization taking on the  
+issue as a high priority after  
+years of neglect. HE WENT ON TO ESTABLISH THE GLOBAL  
+SNAKEBITE INITIATIVE, A U.S.-BASED  
+NONPROFIT CURRENTLY DEVELOPING A  
+NEW ANTIVENOM FOR SUB-SAHARAN  
+AFRICA.  
+o HE HAS ALSO SPENT THE LAST 25 YEARS  
+CREATING BASEBALL AND COMMUNITY-  
+BUILDING DOCUMENTARIES FOR A  
+NORTHERN CALIFORNIA CHARITY AND  
+MLB ALUMNI.  
+8
