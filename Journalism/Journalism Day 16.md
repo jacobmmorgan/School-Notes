@@ -1,1 +1,1 @@
-## Guest Speaker - G
+## Guest Speaker - James Reid
