@@ -42,5 +42,13 @@ o HE HAS ALSO SPENT THE LAST 25 YEARS
 CREATING BASEBALL AND COMMUNITY-  
 BUILDING DOCUMENTARIES FOR A  
 NORTHERN CALIFORNIA CHARITY AND  
-MLB ALUMNI.  
-8
+MLB ALUMNI. In the summer of 2025, Reid launched another passion project a 
+pop-up bakery.  
+He also continues to develop a “next generation” platform for Bay  
+Area feature and travel storytelling.  
+In his spare time, he can be found conducting oral histories of family  
+and friends or in the kitchen, where he loves to chef for those who  
+love to eat.
+NO MATTER WHAT, TELLING  
+STORIES IS AT THE CENTERPIECE  
+OF IT ALL.
