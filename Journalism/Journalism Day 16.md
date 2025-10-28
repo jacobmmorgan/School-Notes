@@ -52,3 +52,8 @@ love to eat.
 NO MATTER WHAT, TELLING  
 STORIES IS AT THE CENTERPIECE  
 OF IT ALL.
+Executive Director of the Global Snakebite Initiative USA Foundation (https://globalsnakebite.org), dedicated to bring needed solutions to reduce the death and the disability for those suffering the effects of snakebites in Southeast Asia, sub-Saharan Africa, Latin America and Oceania. My passion to bring action to this long-overlooked issue stemmed from my creation of the global health advocacy documentary “Minutes to Die” (http://bit.ly/40v4v90). Since 2016, I’ve guided philanthropic resources to fill gaps in affected countries and to further drive advocacy, educational filmmaking and tent-building.  
+  
+A nine-time Emmy award-winning producer and former television production executive with CBS Television San Francisco, I’ve always been a storyteller at the core, taking sabbaticals or spare time to produce impactful documentaries and shorts to elevate little known local and international issues.  
+  
+In 2003, I created, produced and hyped a rather honest (and filthy) series for CBS SF, which chronicled the lives of everyday champions who performed unthinkable occupational tasks. “Somebody’s Gotta Do It”, with then “Evening Magazine” host Mike Rowe became a local hit, and after 25 episodes, the idea was pitched and picked up by the Discovery Channel and renamed, “Dirty Jobs.” I stayed behind from what would become an international hit show to raise my children and further my skills in my home test kitchen.
