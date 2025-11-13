@@ -1,1 +1,1 @@
-Compliments arent manipulative but manipulators use compliments.
+Compliments aren't manipulative but manipulators use compliments.
