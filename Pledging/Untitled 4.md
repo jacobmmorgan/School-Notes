@@ -1,3 +1,7 @@
 Josh Juanitas
 Steven lloya
-Er
+Eric Murray
+Nicho campos
+Kevin battipede
+TOny faccenda
+Nick dobis nathan 
