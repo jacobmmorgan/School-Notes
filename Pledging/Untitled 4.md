@@ -1,7 +1,2 @@
-kevin battapede
-steven loya
-nathan hoffard
-josh juanitas
-nick  
-nicho campos
-eric murray 
+Kevin battipede
+Steven lloya
