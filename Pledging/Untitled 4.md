@@ -1,10 +1,10 @@
 Fredrick R Hyson
 
-
-Josh juanitas
+Josh Juanitas
 Steven loya
 Eric Murray
 Nathan Hoffard
 Kevin Bettipede
 Tony Faccenda
 Nicholas Campos
+Nick Dobbis
