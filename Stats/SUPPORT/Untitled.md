@@ -1,1 +1,2 @@
-  Data: in
+  Data: information obtained, descriptive statistics
+  
