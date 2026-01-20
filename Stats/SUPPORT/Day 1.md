@@ -1,3 +1,6 @@
   - Data: information obtained
   - descriptive statistics: collected data and organizing it, presenting in tables/graphs
-  - inferential statistics: based on probability, other mathematical tools allows you to reach conclusions5                     
+  - inferential statistics: based on probability, other mathematical tools allows you to reach conclusions
+
+
+Steps to find 
