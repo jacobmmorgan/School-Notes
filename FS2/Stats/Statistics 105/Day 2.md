@@ -2,4 +2,4 @@ Population: of interest is the entire group of individuals, objects, animals
 
 Sample: A subset of the population of interest from which you collect data when the entire population of interest is too large
 
-Parameter: measurement describing a c
+Parameter: measurement describing of a population (e.g. avg salary of all pediatricians in the us)
