@@ -1,1 +1,1 @@
-Population: of interest is the entire g
+Population: of interest is the entire group of individuals, objects, animals
