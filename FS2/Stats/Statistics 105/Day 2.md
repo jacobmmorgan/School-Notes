@@ -4,4 +4,4 @@ Sample: A subset of the population of interest from which you collect data when 
 
 Parameter: measurement describing a characteristic of a population (e.g. avg salary of all pediatricians in the us)
 
-Statistic: A measurement describing a characteristic of a sam
+Statistic: A measurement describing a characteristic of a sample taken from the population of interestx
