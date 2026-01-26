@@ -1,1 +1,1 @@
-Gender norms are that the father is typically more masculine, the mother being the more supportive role
+Gender norms are that the father is typically more masculine, the mother being the more supportive role`
