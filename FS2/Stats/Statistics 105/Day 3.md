@@ -1,1 +1,1 @@
-Explananjyyuyuuuuuutory variable: 
+Explanatory variable:  a variable that can change another vair
