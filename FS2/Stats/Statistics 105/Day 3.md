@@ -1,3 +1,3 @@
-Explanatory variable:  a variable that can change another variable (response variable)
+Explanatory variable:  a variable that **might** change another variable (response variable)
 
-For many pairs of variables, therte is no hypthesized relatinship
+For many pairs of variables, there is no hypothesized relationship
