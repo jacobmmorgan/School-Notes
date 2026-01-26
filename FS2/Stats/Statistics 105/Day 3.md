@@ -1,1 +1,1 @@
-Explantory variable: 
+Explananjtory variable: 
